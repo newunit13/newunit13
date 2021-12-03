@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Edward Russell
+- 👀 I’m interested in data
+- 🌱 I’m currently learning everything the world has to teach me
+- 📫 How to reach me: edward.dean.russell@gmail.com
